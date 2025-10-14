@@ -21,3 +21,6 @@ The vault closes, the gas flows, the people trade free and easy. It's a revoluti
 So like, be cool. Be private. Then let it go and watch the whole scene bloom.
 
 **That's the vibration we're laying down.** Can you dig it?
+
+
+![](https://raw.githubusercontent.com/0xEggTart/BohFi/refs/heads/main/popnik.png)
