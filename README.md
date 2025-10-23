@@ -1,3 +1,5 @@
+![](https://raw.githubusercontent.com/0xEggTart/BohFi/refs/heads/main/bohfi.png)
+
 **Dig this scene, man...**
 
 Like, picture it: you're holding some bread, but the fuzz is always watching, you dig? Every move you make, the squares got their eyeballs on your stash. It's a real drag.
